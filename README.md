@@ -1,3 +1,3 @@
-21 year old currently studying towards a Techincal Artist title at BTH in Karlskrona.
+21 year old Techincal Artist graduate
 
 Contact: sophialundstrom@hotmail.com
